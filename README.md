@@ -24,6 +24,7 @@
 ![image](https://user-images.githubusercontent.com/92708600/143977832-8afade0b-d1c8-4eab-88dd-85ae75fc3cf3.png)
 
 **3. 제안 및 정리**
+
 ![image](https://user-images.githubusercontent.com/92708600/143977910-b51d89fb-aa69-4c50-9823-980ebbed58cc.png)
 
 
